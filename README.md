@@ -1,1 +1,0 @@
-# kimtaekyung.github.io
